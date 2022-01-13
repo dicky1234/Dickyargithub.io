@@ -1,0 +1,2 @@
+# Dickyargithub.io
+Teknik Informatika
